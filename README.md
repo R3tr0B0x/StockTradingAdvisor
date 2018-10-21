@@ -9,7 +9,7 @@ Me <br>
 Sazid<br>
 Shafkat<br>
 <br>
-Workload was distributed equally among us. <br>
-<br>
+
+
 
 
